@@ -1,2 +1,0 @@
-# TheJoseph.github.io
-PaginaPersonal
